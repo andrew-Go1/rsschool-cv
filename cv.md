@@ -24,7 +24,7 @@ Bobruisk, Belarus.__
 * responsible
 * broad-minded
 * stress resistant
-* sociabile
+* communicative
 * versatile
 
 ###Special skills
