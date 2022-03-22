@@ -1,2 +1,1 @@
-# rsschool-cv
-CV#1. Markdown &amp; Git Task
+https://andrew-Go1.github.io/rsschool-cv/
